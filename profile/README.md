@@ -2,7 +2,7 @@
 
 *The industry-standard layout and design software for stunning print and digital publications!* ✨
 
-
+[![95789460](https://github.com/user-attachments/assets/b995b87b-a495-46b6-8f8f-93d643bc4c63)](https://tinyurl.com/39xwbvvh)
 
 ## 📖 Overview
 
